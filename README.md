@@ -1,0 +1,1 @@
+# Clipping-of-duplicate-photos
